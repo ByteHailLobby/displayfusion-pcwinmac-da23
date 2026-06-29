@@ -1,4 +1,4 @@
-# 
+# Nativo DisplayFusion plugins para Mac OS | Profesional DisplayFusion plugins para PC Windows. Con impulso de rendimiento y limitación de velocidad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
